@@ -6,3 +6,4 @@ Coded By Mr Sabaz Ali Khan
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Coded+By+Mr+Sabaz+Ali+khan)](https://git.io/typing-svg)
 
+<img width="670" height="932" alt="mr Sabaz ali khan" src="https://github.com/user-attachments/assets/189d33d2-058f-4543-9538-f3194693bbbe" />
